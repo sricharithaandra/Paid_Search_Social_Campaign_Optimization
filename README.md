@@ -36,5 +36,7 @@ What We Would Do Differently:
 
 
 Author:
-Sricharitha Andra · linkedin.com/in/sricharithaandra 
+
+Sricharitha Andra 
+
 M.S. Marketing Analytics & Insights - Wright State University, 2025
